@@ -13,4 +13,4 @@ This website is meant to be a joke, and it serves no purpose whatsoever.
 Omg same, go rickroll yourself [here](https://www.youtube.com/watch?v=dQw4w9WgXcQ)... 
 
 ## Check me out on socials.
-If you want to see more Maddie - check out my socials at https://madds.lol/socials. 
+If you want to see more Maddie - check out my socials at [https://madds.lol/socials](https://madds.lol/socials). 
